@@ -1,5 +1,5 @@
 =====================
-Le SuicideEtude de Sociologie
+Le Suicide Étude de Sociologie
 =====================
 
 
